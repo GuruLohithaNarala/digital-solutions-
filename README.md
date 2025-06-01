@@ -57,7 +57,7 @@ If you'd like to contribute:
 📧 Contact
 
 N. Guru Lohitha 
-📧 [lohitha.yourmail@example.com](mailto:lohitha.yourmail@example.com)
-🔗 [LinkedIn](https://www.linkedin.com/in/your-profile/)
+📧 [naralagurulohitha@gmail.com](mailto:naralagurulohitha@gmail.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/gurulohitha-narala-2b84602a2?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bc%2BaPVAHTRt%2BMGikC6lugsg%3D%3D)
 
 
